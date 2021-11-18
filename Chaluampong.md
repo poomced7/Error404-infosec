@@ -1,1 +1,0 @@
-Chaluampong Pairat
